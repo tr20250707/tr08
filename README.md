@@ -13,6 +13,6 @@
 平台最大优势是无广告，专心观看，没有弹窗或会员推送。所有数据加密保护，确保隐私安全，无需注册，直接访问即可观看。
 如果你需要一个免注册、无广告、安全的平台，这里是理想选择。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/tr20250707/tr08 ）</span>
 
 
